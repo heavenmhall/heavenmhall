@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Heaven, a Junior Data Analyst located in Southern California. 
+I'm Heaven, a Junior Data Analyst located in Salt Lake City. 
 
 ⭐️ A bit about me! ⭐️
 
